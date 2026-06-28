@@ -1,4 +1,4 @@
-# 
+# Léger Krita préréglages pour Mac OS | Meilleur Krita préréglages pour PC Windows. Avec moteur de pinceaux et trajectoires de mouvement — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
